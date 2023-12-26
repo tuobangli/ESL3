@@ -1,3 +1,1 @@
-ask embassy for the waiting time. If within one week, then visa in Malaysia.
-
-5
+waiting for DS-2019 or Berkeley extension offer.
