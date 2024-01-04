@@ -1,1 +1,1 @@
-Saipan Beach Hotel
+Carol T. Christ 
