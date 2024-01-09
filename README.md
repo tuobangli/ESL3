@@ -1,1 +1,1 @@
-Current is enough, waiting for reply 
+Current is enough, waiting for DS-2019
