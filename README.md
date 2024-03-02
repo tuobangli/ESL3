@@ -1,3 +1,3 @@
-IoB, Macau
+UC Berkeley IoB, Macau
 
 
