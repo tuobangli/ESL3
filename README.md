@@ -1,3 +1,3 @@
-UC Berkeley IoB, Macau
+UC Berkeley IoB, Hong Kong
 
 
